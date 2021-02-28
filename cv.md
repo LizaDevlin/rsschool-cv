@@ -20,5 +20,5 @@ I didn't do a lot of projects, but I have few, unfortunately it's on my old comp
 - in *2016* got an Internetional TEFL sertificale
 
 ### English level ###
-Somewhere between B1 and B2. My english is very fluent, i used to have a canadian coach and now I husband, who is american, so I speak in english more, than I do in russian. <br/>
-My grammar is not perfect, but I'm working on it, and study almost every day
+Somewhere between B1 and B2. My english is very fluent, I used to have a canadian coach and now I'm married to an american, so I speak english more, than I do russian. <br/>
+My grammar is not perfect, but I'm working on it.
